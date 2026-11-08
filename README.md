@@ -1,1 +1,0 @@
-# Kurultai_znaniy
